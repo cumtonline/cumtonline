@@ -8,3 +8,20 @@
 我们的成员来自全校各个学院，20年来，新老成员遍布腾讯、阿里巴巴、美团、字节跳动等各个互联网公司，致力于开发、算法、安全等各个岗位。这里是矿大学生群体中最好的技术团队。
 
 > **在通往梦想的道路上，我们一起飞翔！**
+
+------
+
+## 代码和产品
+
+Github[团队主页](https://github.com/cumtflyingstudio)，包含一些学习课程和工作室已开源的代码
+
+
+产品交流QQ群：[839372371](https://jq.qq.com/?_wv=1027&k=uyoNnDbT)
+
+[![BlhOQ1.md.jpg](https://s1.ax1x.com/2020/10/28/BlhOQ1.md.jpg)](https://imgchr.com/i/BlhOQ1)
+
+## 联系我们
+
+招新QQ群：[957634136](https://jq.qq.com/?_wv=1027&k=4S2Oq5HX)
+
+[![Bl4JmV.md.jpg](https://s1.ax1x.com/2020/10/28/Bl4JmV.md.jpg)](https://imgchr.com/i/Bl4JmV)
