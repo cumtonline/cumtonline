@@ -19,12 +19,6 @@
 
 <a href="https://imgchr.com/i/BlhOQ1"><img src="https://s1.ax1x.com/2020/10/28/BlhOQ1.jpg" alt="BlhOQ1.jpg" border="0" width=260/></a>
 
-## 联系我们
-
-招新QQ群：[957634136](https://jq.qq.com/?_wv=1027&k=4S2Oq5HX)
-
-<a href="https://imgchr.com/i/Bl4JmV"><img src="https://s1.ax1x.com/2020/10/28/Bl4JmV.jpg" alt="Bl4JmV.jpg" border="0" width=260/></a>
-
 
 ## 成员
 
